@@ -211,4 +211,4 @@ Collins English Dictionary is offered as a **full free version**, with all featu
 Download Collins English Dictionary today and unlock the full potential of your English language skills!
 
 ---
-**Last updated:** 2026-10-01 20:43:52 UTC
+**Last updated:** 2026-10-02 00:25:39 UTC
